@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects that build my skills.
 - 📫 How to reach me fideliadeon@gmail.com
 - 😄 Pronouns: she/ her
-- ⚡ Fun fact: Any tech-related was an enemy to past me.
+- ⚡ Fun fact: I have so much to learn.
 
 <!---
 DelliaDeon/DelliaDeon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
