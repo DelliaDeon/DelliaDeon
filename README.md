@@ -2,7 +2,7 @@
 - 👀 I’m interested in Software engineering and AI.
 - 🌱 I’m currently learning flutter and ML models.
 - 💞️ I’m not looking to collaborate at the moment.
-- 📫 How to reach me fideliadeon@gmail.com
+- 📫 How to reach me 
 - 😄 Pronouns: she/ her
 - ⚡ Fun fact: I have so much to learn.
 
